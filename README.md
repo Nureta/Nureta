@@ -1,1 +1,1 @@
-# Profile
+# SIGMA DEVELOPER NURETA!!! HAHAH
